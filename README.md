@@ -1,0 +1,1 @@
+Data obtained from semi structured questionannaire evaluating Knowledge, Practices, and Perceptions Towards Malaria Prevention and Control Among Residents of Canaanland and Surrounding Areas in Ota, Ogun State, Nigeria
